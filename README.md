@@ -2,7 +2,7 @@
 - 👀 I’m interested in the Currently evolving feild of Artificial Intelligence, how it is trying to blend in everything, from entrepreneurships to friendships and from my music to my tooth brush!
 - 🌱 I’m currently learning Machine Learning, but I also have a keen interest in Cybersecurity technologies.
 - 💞️ I’m looking to collaborate on real world projects which are fun to build, but more importantly makes the end used satisfied.
-- 📫 If you want to collaborate with me, I'm just a text away on LinkedIn at - www.linkedin.com/in/sumeet-jangid and on X at - @sumeetj01
+- 📫 If you want to collaborate with me, I'm just a text away on LinkedIn at - www.linkedin.com/in/sumeet-jangid and on X at - [@sumeetj01](https://x.com/sumeetj01)
 - P.S.- It may take me a day to reach back to you, but that will be a rare case.
 - ⚡ Fun fact: If you are still reading, then let's connect on X!
 
